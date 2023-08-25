@@ -1,1 +1,1 @@
-Aspiring software developer and creative!
+Full stack software developer and creative!
